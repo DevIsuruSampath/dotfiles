@@ -1,0 +1,3 @@
+# Recognizing Common Sight Words
+
+Sight words are words that you learn to recognize instantly, without needing to sound them out. They appear frequently in what you read, so knowing them helps you read faster and understand better. Learning sight words is like building a strong foundation for reading. The more sight words you know, the easier it becomes to read sentences, stories, and even longer books. This lesson will introduce you to some of the most common sight words and give you practice recognizing them.
